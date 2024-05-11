@@ -1,4 +1,3 @@
-# cnladdervpn.github.io
 VPN 推荐2024 专注中国区域
 
 # 翻墙软件Ladder VPN 最新推荐 - 针对中国用户 - 好用好用好用(2024年最新)
